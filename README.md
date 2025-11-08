@@ -2,7 +2,8 @@
 ![alt text](https://i.postimg.cc/6Q0GMK8Y/unnamed-2-removebg-preview.png)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhasllzx4hxaimegc7gb4srnom&cover_image=true&theme=default&show_offline=false&background_color=2a2d5b&interchange=false&profanity=false&bar_color=442c68&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![alt text](https://i.postimg.cc/76kg2rcy/tumblr-e1b2b49dbdeb11f0cca8dc4d554ebd3f-401b8791-100.png) ![alt text](https://i.postimg.cc/1XLR8sCX/tumblr-c3419d1e6210b3a10c66b32c77459864-ea9b2943-100.png) ![alt text](https://i.postimg.cc/zDPFx6Hn/9s00sx.gif) 
+![alt text](https://i.postimg.cc/76kg2rcy/tumblr-e1b2b49dbdeb11f0cca8dc4d554ebd3f-401b8791-100.png) ![alt text](https://i.postimg.cc/1XLR8sCX/tumblr-c3419d1e6210b3a10c66b32c77459864-ea9b2943-100.png) ![tumblr-f2e15fd3b029211005c492b50f663520-531ea801-100](https://github.com/user-attachments/assets/ac4469d2-4f61-41ac-b534-9cb13231dcfc)
+
 <!--
 **M00nk1ss3d/M00nk1ss3d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
