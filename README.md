@@ -1,4 +1,4 @@
-![alt text](https://i.postimg.cc/1Xz0GtMg/tumblr-11b75251728326a6a889b30678cb8f3a-36533bc8-640-removebg-preview.png)
+![alt text](https://i.postimg.cc/Xv0QdYsk/tumblr-52eeed3ed1585bb14a39010dc9e1fb6f-e064e577-640.png)
 ![alt text](https://i.postimg.cc/6Q0GMK8Y/unnamed-2-removebg-preview.png)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhasllzx4hxaimegc7gb4srnom&cover_image=true&theme=default&show_offline=false&background_color=2a2d5b&interchange=false&profanity=false&bar_color=442c68&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -11,7 +11,7 @@
 
 
 
-
+![alt text](https://i.postimg.cc/pdxJy1TM/tumblr-9f2702753e64f5c1d7cc5c8aae02e1c4-a9cad306-640.png)
 
 
 <!--
