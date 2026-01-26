@@ -19,6 +19,8 @@
 
 ![alt text](https://i.postimg.cc/pdxJy1TM/tumblr-9f2702753e64f5c1d7cc5c8aae02e1c4-a9cad306-640.png)
 
+if you would like to interact with my strawpage but are confused on how it works... You will first arrive at the home page! All you have to do is press on the circular images like a 8 ball, blueberry, etc and you may explore the universe of moonbie!
+
 
 <!--
 **M00nk1ss3d/M00nk1ss3d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
