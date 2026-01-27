@@ -13,13 +13,14 @@
 ![kiznjt](https://github.com/user-attachments/assets/a3027a94-ebae-4a29-86fd-597cee5101cc) ![0cxq2t](https://github.com/user-attachments/assets/3a8693f3-5312-4939-89ca-d01710147dc4) ![gx3bdm](https://github.com/user-attachments/assets/3550f078-f920-489c-aacd-9ec2e6fac10d) ![euw6hg](https://github.com/user-attachments/assets/cb20a02e-1ce1-4a0b-a77c-3fb681fa42cf) 
 
 
-
+If you would like to interact with my strawpage but are confused about how it works... You will first arrive at the home page! All you have to do is press on the circular images like a 8 ball, blueberry, etc and you may explore the universe of moonbie!
+I'm also terribly sorry for the fact that my strawpage isn't as easily functional for mobile phone pt users! I'll 100% make a mobile friendly strawpage to add so you guys can have an easier time as well!
 
 
 
 ![alt text](https://i.postimg.cc/pdxJy1TM/tumblr-9f2702753e64f5c1d7cc5c8aae02e1c4-a9cad306-640.png)
 
-if you would like to interact with my strawpage but are confused on how it works... You will first arrive at the home page! All you have to do is press on the circular images like a 8 ball, blueberry, etc and you may explore the universe of moonbie!
+
 
 
 <!--
