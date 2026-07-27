@@ -11,7 +11,7 @@
   
   </h5>
   
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=50&pause=1000&color=353A8A&width=750&lines=Welcome+to+Moonbie's+oasis;you+may+be+born+into+a+family+but+you+walk;into+friendships+.some++you'll+discover+you+should+put;behind+you+.others+are+worth+every+risk...)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10+Charted&size=50&pause=1000&color=353A8A&width=750&lines=Welcome+to+Moonbie's+oasis;you+may+be+born+into+a+family+but+you+walk;into+friendships+.some;you'll+discover+you+should+put;behind+you+.others+are+worth+every+risk...)](https://git.io/typing-svg)
 
   <h5 align="center">
 
