@@ -27,6 +27,14 @@ $\color{#345DA4}{‧₊˚ ⏾. ⋅ She/her}$
 
 $\color{#2F449A}{Minor ٠࣪⭑ }$
 
+$\color{#3A3B8B}{⋆˖⁺‧₊☾◯☽₊‧⁺˖⋆}$
+
+[Strawpage](https://moonglass.straw.page) 
+꩜
+[Prns page](https://en.pronouns.page/@Moonbie)
+꩜
+[Ata](https://moonbie.atabook.org/) 
+
 
 ![alt text](https://i.postimg.cc/76kg2rcy/tumblr-e1b2b49dbdeb11f0cca8dc4d554ebd3f-401b8791-100.png)  ![42236473-FP6e-Eylew-CBd-TCi](https://github.com/user-attachments/assets/bcd2d700-2281-488a-9393-8a9271e550b0) ![Tumblr-l-522321817580383](https://github.com/user-attachments/assets/f0f26301-7057-4a5b-b4d7-755f4fb1bf3a) ![IMG-8010](https://github.com/user-attachments/assets/6b4ca9ed-2b90-495d-a766-4d64b242aba4) ![dd7if1l-131e4505-586b-4262-8c9d-66ec2dfae6ba](https://github.com/user-attachments/assets/6785434f-6af0-4c9f-b943-d0cf5c890072) <img width="99" height="55" alt="Untitled292-20250808003111" src="https://github.com/user-attachments/assets/32b20bb9-03f4-4ae2-a8e5-803652322544" /> ![dark-mode](https://github.com/user-attachments/assets/55ebf096-b732-4968-9a0f-2ac66d634c16) ![b-pm](https://github.com/user-attachments/assets/54b7763f-3a7b-4f7d-9a91-7ae4aea230cb)
 
